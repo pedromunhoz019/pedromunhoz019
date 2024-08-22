@@ -1,3 +1,6 @@
 ## boas vindas ao meu perfil
 
-- sdfsdfsdfs
+- tenho 16 anos 
+-gosto de boy
+-nao tenho pai
+-meu nome e pedro
